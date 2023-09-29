@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @Dagi-web
 - 👀 I’m interested in new Innovations
-- 🌱 I’m currently learning Marketing Management
 - 💞️ I’m looking to collaborate on Everthing
 - 📫 How to reach me - 0913885213
 
